@@ -10,7 +10,7 @@ Le visa F1 est le visa principal pour les étudiants internationaux souhaitent �
 -Passeport valide
 -Justificatifs financiers
 -Formulaire DS-160
-### Conseils :
+### Conseils essentiels pour réussir sa demande de visa :
 -Préparer l'entretien avec soin
 -Avoir une motivation claire 
 
